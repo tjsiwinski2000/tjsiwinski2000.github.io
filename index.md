@@ -1,6 +1,6 @@
 # hello world 2022
 
-### I can't wait to see what you create
+### We do not give up.  ###
 
 *** enjoy ***
 
