@@ -1,7 +1,2 @@
-# hello world 2022
-
-### We do not give up.  ###
-
-*** enjoy ***
-
-<a href="https://www.w3schools.com/">Visit W3Schools.com!</a>
+But I have not yet been silenced by the darkness
+Nor by the gloom that has covered my face. (Job 23:17)
