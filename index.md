@@ -4,7 +4,8 @@ Nor by the gloom that has covered my face. (<a href="https://www.jw.org/en/libra
 You cannot scale a mountain in a single step; however, you can take on the challenge one step at a time. (<a href="https://wol.jw.org/en/wol/d/r1/lp-e/102014125">magazine article</a>)
 
 
-I think of what the world could be
-A vision of the one I see
-A million dreams is all it's gonna take
-Oh a million dreams for the world we're gonna make 
+I think of what the world could be <br>
+A vision of the one I see <br>
+A million dreams is all it's gonna take <br>
+Oh a million dreams for the world we're gonna make <br>
+
