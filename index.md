@@ -1,4 +1,10 @@
 But I have not yet been silenced by the darkness
 Nor by the gloom that has covered my face. (Job 23:17)
+===========================================================
+You cannot scale a mountain in a single step; however, you can take on the challenge one step at a time. <a href="https://wol.jw.org/en/wol/d/r1/lp-e/102014125">magazine article</a>
+===========================================================
 
-You cannot scale a mountain in a single step; however, you can take on the challenge one step at a time. https://wol.jw.org/en/wol/d/r1/lp-e/102014125
+I think of what the world could be
+A vision of the one I see
+A million dreams is all it's gonna take
+Oh a million dreams for the world we're gonna make
