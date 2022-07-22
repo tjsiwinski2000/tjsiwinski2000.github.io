@@ -1,5 +1,5 @@
 But I have not yet been silenced by the darkness
-Nor by the gloom that has covered my face. ( <a href="https://www.jw.org/en/library/bible/nwt/books/job/23/#v180230175">Ancient Writings</a> )
+Nor by the gloom that has covered my face. (<a href="https://www.jw.org/en/library/bible/nwt/books/job/23/#v180230175">Ancient Writings Job23:17</a>)
 
 You cannot scale a mountain in a single step; however, you can take on the challenge one step at a time. <a href="https://wol.jw.org/en/wol/d/r1/lp-e/102014125">magazine article</a>
 
