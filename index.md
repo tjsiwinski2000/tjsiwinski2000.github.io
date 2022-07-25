@@ -9,3 +9,7 @@ A vision of the one I see <br>
 A million dreams is all it's gonna take <br>
 Oh a million dreams for the world we're gonna make <br>
 
+
+With our eyes of faith, <br>
+We see beyond the clouds <br>
+And know that the storm soon will cease <br>
