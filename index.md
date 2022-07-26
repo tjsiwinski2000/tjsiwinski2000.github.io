@@ -3,14 +3,13 @@ Nor by the gloom that has covered my face. <br>(<a href="https://www.jw.org/en/l
 <hr>
 You cannot scale a mountain in a single step; however, you can take on the challenge one step at a time. <br>(<a href="https://wol.jw.org/en/wol/d/r1/lp-e/102014125">magazine article</a>)
 <hr>
-
 I think of what the world could be <br>
 A vision of the one I see <br>
 A million dreams is all it's gonna take <br>
 Oh a million dreams for the world we're gonna make <br>
+<a href="https://www.azlyrics.com/lyrics/greatestshowmancast/amilliondreams.html">Greatest Showman Lyrics</a>
 <hr>
-
 With our eyes of faith, <br>
 We see beyond the clouds <br>
 And know that the storm soon will cease <br>
- <br><a href="https://www.jw.org/en/library/music-songs/original-songs/peace-at-last-2022-convention-song/">Original Song</a>
+<a href="https://www.jw.org/en/library/music-songs/original-songs/peace-at-last-2022-convention-song/">Original Song</a>
