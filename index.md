@@ -13,3 +13,6 @@ With our eyes of faith, <br>
 We see beyond the clouds <br>
 And know that the storm soon will cease <br>
 <a href="https://www.jw.org/en/library/music-songs/original-songs/peace-at-last-2022-convention-song/">Original Song</a>
+<hr>
+The way you overcome tiredness is think about other people 07-31-2022 
+<hr>
